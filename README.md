@@ -1,2 +1,0 @@
-# MELODY
-MELODY Trainers guide
